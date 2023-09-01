@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ghazikhalel
-- 📫 HInformatics engineering fourth 
+- 📫 Informatics engineering fourth 
 academic year, 
 Aleppo Free University 
 2019 | Idlep, Syria
